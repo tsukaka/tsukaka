@@ -8,4 +8,4 @@ $${\color{gold}world \space future \space star!}$$
 
 ![](https://64.media.tumblr.com/b058268cd316b33cd7cf6379d8ae3fd9/362c288916d8cd39-70/s1280x1920/fc5bacc234268a330539b46446cc0ef87f6fe225.pnj)
 
-![](https://wilardo.crd.co/assets/images/gallery16/00003ee5.png?v=d0e71742)
+![](https://wilardo.crd.co/assets/images/gallery16/00003ee5.png?v=d0e71742) ![](https://64.media.tumblr.com/b16587c8c70900f886df422ecf8abb74/6dabac9933529b92-d3/s100x200/eaefe39b748505097bfadd1b91a1852032562731.pnj) ![](https://64.media.tumblr.com/d6bd6b743ec19e4d47addaf466f45a8d/4b9e098e1753b2dc-84/s100x200/29a0aa0b27318c3b255bf66094f04e420c5218e1.pnj)
